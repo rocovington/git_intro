@@ -1,1 +1,2 @@
 Rachel Covington
+covingra@oregonstate.edu
